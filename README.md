@@ -82,7 +82,7 @@ Passionate about building real-world applications, AI solutions, and modern web 
 ## 📫 Connect With Me
 
 📧 Email: jayakodisameera643@gmail.com  
-💼 LinkedIn: https://linkedin.com/in/your-linkedin  
+💼 LinkedIn: [sameera jayakody](https://www.linkedin.com/in/sameera-jayakody-9a2893281/)  
 🌐 Portfolio: https://your-portfolio-link  
 
 ---
